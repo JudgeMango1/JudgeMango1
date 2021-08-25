@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @JudgeMango1
+- 👀 I’m interested in making a horror game
+- 🌱 I’m currently learning gr 9
+- 💞️ I’m looking to collaborate on nothing atm
+- 📫 How to reach me JudgeMango#1879 on discord :D!
